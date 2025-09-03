@@ -7,5 +7,6 @@ yaoi
 
 
 ➥DNC my skins pls, I might be AFK playing games or sum so w2i me!! 
-
 ➥feel free to cuddle me, and add me on mlbb!1229917199 (6606)
+![lost-in-the-cloud-litc](https://github.com/user-attachments/assets/2cbda2f8-433a-43c7-82b9-aebbdf2b6c43) baii baii
+

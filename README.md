@@ -1,5 +1,6 @@
-# meee
-yaoi
+# 𝑚𝑒𝑒𝑒＊ 
+*•̩̩͙✩•̩̩͙*˚𝑌𝑎𝑜𝑖˚*•̩̩͙✩•̩̩͙*˚＊
+
 ➥heyya, Name s szofi she/her 17 yrs old. 
 
 ➥I watch, read anime, manga and yaoi OFC lol, Yaoi for life.![68747470733a2f2f66696c65732e636174626f782e6d6f652f3575333175382e676966](https://github.com/user-attachments/assets/e24454df-f512-4cdc-9146-3bd8540c055c)
